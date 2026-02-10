@@ -14,5 +14,5 @@ Hello! I'm Burak Sarıipek
 🕹️ Gaining new skills in the realm of video game development.
 📫 Get in Touch:
 
-📧 oldvillagger@gmail.com
+📧 sariipekburak@gmail.com
 🔗 discord@oldvillagger
